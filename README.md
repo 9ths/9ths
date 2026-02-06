@@ -6,7 +6,7 @@
 
 <br><img src="hi clu..omg.gif" width="480px">
 <h5>
-tix/ tesco⠀⠀⸻⠀it
+/ tesco⠀⠀⸻⠀it
 <br>male⠀ 18⠀⠀british⠀sys⠀⠀(^q^)
 
 <br><a href="https://lynchmob.straw.page" target="_blank">straw​</a>⠀⠀<a href="https://thesatiristsluvsong.straw.page" target="_blank">gimmck wall​</a>⠀⠀<a href="https://ponyexpress.atabook.org/" target="_blank">新book​</a>
